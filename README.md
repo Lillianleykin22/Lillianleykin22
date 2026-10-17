@@ -28,7 +28,7 @@ More projects and updates coming soon!
 
 - GitHub: [@Lillianleykin22](https://github.com/Lillianleykin22)
 - LinkedIn: Add your LinkedIn profile link here
-- - LinkedIn: [My LinkedIn Profile](https://www.linkedin.com/in/lillian-leykin-176216413/)
+- - LinkedIn:(https://www.linkedin.com/in/lillian-leykin-176216413/)
 
 ---
 
